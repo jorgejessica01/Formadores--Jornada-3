@@ -1,1 +1,1 @@
-# Formadores--Jornada-3
+Grupo de Estudo Formadores em ação- Jornada 3
